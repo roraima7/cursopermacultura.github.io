@@ -1,0 +1,2 @@
+# cursopermacultura.github.io
+Dirigido a todas personas interesadas en producir alimentos de primera necesidad de forma natural, autosuficiente y permanente en sus casas con sistemas de animales, sistemas de riego ecológicos, sistemas de compostas orgánicas, sistemas de producción biointensivas, sistemas de control de plagas naturales (insecticidas biológicos),  Este curso responderá positivamente a muchas de las necesidades y retos del diario vivir que enfrenta la población de Sta. Elena de Uairien y sus comunidades vecinas.
